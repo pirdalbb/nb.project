@@ -1,3 +1,3 @@
 # nb.project
 nilay ile deneme
-nialy is amazing girl
+nilay is amazing girl
