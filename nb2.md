@@ -1,1 +1,0 @@
-işte şimdi olması lazım
